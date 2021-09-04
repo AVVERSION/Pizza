@@ -1,0 +1,7 @@
+Mozzarella Cheese (enough to cover the whole pizza. Rest up to you)
+Tomato Sauce (enought to spread across the whole pizza. But believe me, you won't like a lot of it.)
+Pizza base (What else will you make your pizza on??🤪)
+golden corn (specially needed for a lip smaking pizza)
+chicken of choice (make sure it's juicy {not the drinking juice kind})
+throw in a basil (just for decoration)
+choice of sliced vegetables (SERIOUSLY NOT RECOMMENDED. Just adding so some fitness freaks don't complain abt it🤷‍♂️)
